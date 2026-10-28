@@ -1,0 +1,2 @@
+# FritzPornoliste
+Sperrliste für Domains
